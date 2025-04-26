@@ -1,1 +1,1 @@
-# Soluciones-Electricas-BRhttps://github.com/solucioneselectricasbr/solucioneselectricasbr.git
+# Soluciones-Electricas-BR
